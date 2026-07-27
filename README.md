@@ -52,7 +52,7 @@ ${\textsf{\color{#E94F37}usually offtab so w2i}}$
 
  ⠀⠀ ⠀⠀[sp](https://cannibaler.straw.page/) 
   ⠀⠀ ⠀⠀[prnspage](https://en.pronouns.page/@cannibal__) 
-   ⠀⠀ ⠀⠀[rentry](https://rentry.co/cannibaler) 
+   ⠀⠀ ⠀⠀[rentry](https://rentry.co/cannibalerer) 
 
  ⠀⠀ ⠀
  
